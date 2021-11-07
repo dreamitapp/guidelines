@@ -1,3 +1,2 @@
 ## DREAM IT
-Dream It is the coolest app on earth
-
+Dream It is the best app existing on earth
